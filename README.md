@@ -1,4 +1,4 @@
 Hello Monks! Welcome to CorePuchin's Biggest update yet...
-CAPUCHIN V1!!!!
-its time we bring this onto CorePuchin because of our limited versions of capuchin, but to AxeDev, its real
-Enjoy the update Bois
+LEVEL 2 AND 3!!!
+thats right, Level 2 And 3 are now acessable which Means new monsters Lurk
+Enjoy!
