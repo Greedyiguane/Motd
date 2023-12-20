@@ -1,4 +1,3 @@
-Hello Monks! Welcome to CorePuchin's Biggest update yet...
-LEVEL 2 AND 3!!!
-thats right, Level 2 And 3 are now acessable which Means new monsters Lurk
-Enjoy!
+something lurks around in horror, go check that out, but seriously, heres the patch notes
+- Added Level 3 + VHS
+- Added VHS to Level 2
