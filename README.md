@@ -1,4 +1,5 @@
-something lurks around in horror, go check that out, but seriously, heres the patch notes
-- Added Level 3 + VHS
-- Added VHS to Level 2
-- ENJOY!!!!
+I call this- THE REJECT EDITION
+- Added VHS to level 2 for real
+- Added more monsters :)
+- Removed access to vents for everyone
+- ENJOY!!!
