@@ -1,5 +1,3 @@
-I call this- THE REJECT EDITION
-- Added VHS to level 2 for real
-- Added more monsters :)
-- Removed access to vents for everyone
+I call this- THE HELL EDITION
+- added a monsters in level 1 and a lot to level 2
 - ENJOY!!!
